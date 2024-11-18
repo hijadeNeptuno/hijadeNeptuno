@@ -6,6 +6,6 @@ I entered the world of data as a result of the pandemic, and in a self-taught wa
 
 I’m currently working at the Ministry of Public Health on a data analysis project for the Health Personnel Monitoring and Evaluation Department. I have also worked on the development of the culture satellite account for the national culture directorate of the Ministry of Education and Culture.
 
-If you want to contact me, I am available at virginia.recagno@gmail.com
+I am also part of RLadies Montevideo. If you want to contact me, I am available at virginia.recagno@gmail.com
 
 
